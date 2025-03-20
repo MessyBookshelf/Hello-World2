@@ -1,6 +1,6 @@
 # Hello-World2
 Tutorial thingy following the manual
 
-I'm editong This thingy ^^ Yey
+Lifeline/Messy Bookshelf was editong This thingy ^^ Yey
 
-I'm Lifeline/Messy Bookshelf
+I'm Zynskey/Trancwolve and I'm edotinf this because ADo likes to mey mey around.
